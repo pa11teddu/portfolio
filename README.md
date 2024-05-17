@@ -1,2 +1,2 @@
-# pavankumarreddyonteddu.github.io
+# Pavan Kumar Reddy Onteddu
 Portfolio
